@@ -5,7 +5,7 @@
 ₊˚.༄ ೃ - " wip " ｡･:*˚:✧｡
 </p>
 <p align="center">
-<img src="https://github.com/user-attachments/assets/4fe5d941-62c1-4c12-897a-63f098b43a72" width="400px">
+<img src="https://github.com/user-attachments/assets/57b9d7ce-b82c-4798-9b7e-5c8582e1f6da" width="400px">
 <br>
 <a href="https://www.tumblr.com/nomkiwi/755635681244643328/kyoko-sakura-for-whisfers-event-tap">creds 2 nomkiwi on tumblr 4 icon ! </a>
 <br>
