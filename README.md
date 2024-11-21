@@ -1,8 +1,8 @@
 <p align="center">
-  <img src="https://64.media.tumblr.com/d38ff3b31b15a28c1838cc752628c4d6/3a9adf60716557fd-d0/s540x810/5b218a59a5905eb147d31158d06772eed97e1d83.gifv" width="600px">
+  <img src="https://github.com/user-attachments/assets/952584b2-7e00-4ade-b80e-6413b257854a" width="600px">
 </p>
 <p align="center">
-₊˚.༄ ೃ - " wip " ｡･:*˚:✧｡
+₊˚.༄ ೃ - " 𝐈 𝐰𝐢𝐬𝐡 𝐭𝐡𝐚𝐭 𝐞𝐯𝐞𝐫𝐲𝐨𝐧𝐞 𝐰𝐨𝐮𝐥𝐝 𝐥𝐢𝐬𝐭𝐞𝐧 𝐭𝐨 𝐰𝐡𝐚𝐭 𝐟𝐚𝐭𝐡𝐞𝐫 𝐡𝐚𝐬 𝐭𝐨 𝐬𝐚𝐲. " ｡･:*˚:✧｡
 </p>
 <p align="center">
 <img src="https://github.com/user-attachments/assets/57b9d7ce-b82c-4798-9b7e-5c8582e1f6da" width="400px">
@@ -15,7 +15,7 @@
 ` ੈ˚ ★ <b>savana</b> ✦ <i>cixija</i> ✦ <b>izzy</b> ✦ <i>jay</i> ✦ <b>rimia</b> !! ·˚ *
 <br> ୨୧・┈┈・┈┈・୨୧
 <br> ೃ⁀➷ <i>she ☆ they</i> ⋯ <b>ENFP</b> ⋯ <i>german</i> !! ヽ(o＾▽＾o)ノ . *. ⋆
-<br> ↳ ♡₊˚. <b>nov 28</b> ⋯ <i>autism <img src="https://github.com/user-attachments/assets/da04b972-1d0a-4d6b-b11d-87d0bf4cdcb2"> ADHD</i> ⋯ furina kinnie ! ˚◞♡ ⃗
+<br> ↳ ♡₊˚. <b>nov 28</b> ⋯ <i>autism <img src="https://github.com/user-attachments/assets/da04b972-1d0a-4d6b-b11d-87d0bf4cdcb2"> ADHD</i> ⋯ furina & hu tao kinnie ! ˚◞♡ ⃗
 <br> <img src="https://watermelon.crd.co/assets/images/gallery16/57de5ebd.png?v=6332de85">
 </p>
 <p align="center">
@@ -31,6 +31,6 @@
 ࿐ ࿔*:･ﾟ <a href="https://rentry.co/savshome"><i>rentry</i></a> ! ⋯ <a href="https://iisqvzxie.carrd.co"><i>carrd</i></a> ! ˚ ༘♡ ⋆｡˚ ❀
 <br>
 <br>
-<img src="https://64.media.tumblr.com/307f92a4ba1c4f4899b5168956014e37/59840e6362bc73df-1b/s100x200/99f0b978f8e43a4a44187a3a6ecb0f94b741729f.gifv"> <img src="https://64.media.tumblr.com/3eb87fe44e33258498662181e1121f59/314f42d5f100d6d0-1c/s100x200/644d2588cc71e57f767b1d65fb19f22052c9c36c.gifv"> <img src="https://64.media.tumblr.com/49157f7fbe93d905e3ecaf2097665537/314f42d5f100d6d0-47/s100x200/2ddd7bafe8797907daac7fc68806262fb3517f23.gifv"> <img src="https://64.media.tumblr.com/3af5879ef93e50c553c8fb0879278b10/59840e6362bc73df-c3/s100x200/af1c65473766790c3490badb10aa7fd9645a0f73.gifv"> <img src="https://64.media.tumblr.com/c873e8cc321bc3279df23b4c7423ed2e/59840e6362bc73df-dd/s100x200/c265076d68b6ed10f9c91bda4b71469ecca0c478.gifv">
+<img src="https://github.com/user-attachments/assets/522e0b0e-bca4-4046-a262-d15e75f2e480"> <img src="https://github.com/user-attachments/assets/716c5a6e-9207-4567-96c7-334149c41804"> <img src="https://github.com/user-attachments/assets/3dd637d3-4542-4e5e-8c2c-d9f012cc3d00"> <img src="https://github.com/user-attachments/assets/35f7d3e7-6f56-4cb0-9a2f-9003c99102e7"> <img src="https://github.com/user-attachments/assets/0fa49470-76f2-4dc1-a868-7c27cc015b36">
 <br>
-<br> <img src="https://64.media.tumblr.com/d38ff3b31b15a28c1838cc752628c4d6/3a9adf60716557fd-d0/s540x810/5b218a59a5905eb147d31158d06772eed97e1d83.gifv" width="600px">
+<br> <img src="https://github.com/user-attachments/assets/952584b2-7e00-4ade-b80e-6413b257854a" width="600px">
