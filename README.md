@@ -14,7 +14,7 @@
 <br> (꜆˶ᵔᵕᵔ˶)꜆ biggest kinnie of <a href=https://genshin-impact.fandom.com/wiki/Furina>01</a> and <a href="https://genshin-impact.fandom.com/wiki/Hu_Tao">02</a> (꒪˙꒳˙꒪)
 <br> <img src="https://64.media.tumblr.com/23442ce98e6ae3a39e10d30b2bc381d9/2323f0817bbce1f4-96/s1280x1920/9453dfb5263e44d59f2f9283618d2802325eb3c5.pnj" width=400>
 <p align="center">
-<img src="https://i.postimg.cc/PPn4KyhD/8-B74-C5-EC-2-F1-E-4-D5-F-9487-0976-BE9-D1-DD5.gif">ㅤ <i>BEFORE ㅤYOUㅤINT !</i>  ㅤ<img src="https://i.postimg.cc/ZWVxbhNP/D00-DBF85-666-B-4815-A380-79-B9-EB09-B41-A.gif">
+<img src="https://i.postimg.cc/PPn4KyhD/8-B74-C5-EC-2-F1-E-4-D5-F-9487-0976-BE9-D1-DD5.gif">ㅤ <i>BEFORE YOU INT !</i>  ㅤ<img src="https://i.postimg.cc/ZWVxbhNP/D00-DBF85-666-B-4815-A380-79-B9-EB09-B41-A.gif">
 <br> <img src="https://files.catbox.moe/lymq7p.png" width=100>
 <br> ↳ I have anger issues <b>especially</b> when loosing in games soo pls be careful around me !
 <br> ↳ Mood swings... eh oh el...
