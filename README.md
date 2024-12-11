@@ -1,36 +1,32 @@
 <p align="center">
-  <img src="https://64.media.tumblr.com/d38ff3b31b15a28c1838cc752628c4d6/3a9adf60716557fd-d0/s540x810/5b218a59a5905eb147d31158d06772eed97e1d83.gifv" width="600px">
-</p>
+<a href="https://github.com/samirusuki">ʚïɞ
 <p align="center">
-₊˚.༄ ೃ - " 𝐋𝐞𝐭 𝐭𝐡𝐞 𝐰𝐨𝐫𝐥𝐝 𝐜𝐨𝐦𝐞 𝐚𝐥𝐢𝐯𝐞, 𝐡𝐞𝐡𝐞! " ｡･:*˚:✧｡
-</p>
+<img src="https://github.com/user-attachments/assets/cfe5a7a1-2e65-4719-ac0f-088df2130916">
+
+<img src="https://github.com/user-attachments/assets/be6cae86-ebd0-4265-aab7-746ce018e9f3" width=700>
 <p align="center">
-<img src="https://64.media.tumblr.com/dca94a87335cf1bd645b11767d3c09d2/62b1ff3c81ee6a21-a4/s1280x1920/a62ce3e83be16fe1ddb0006fe32418896bd7f1ee.gifv" width="400px">
-<br>
-<a href="https://www.tumblr.com/cirrusism/736706092205277184/furina-graphics">creds 2 cirrusism on tumblr 4 icon ! </a>
-<br>
-୨୧‥∵‥‥∵‥‥∵‥‥∵‥‥∵‥‥∵‥୨୧‥∵‥‥∵‥‥∵‥‥∵‥‥∵‥‥∵‥୨୧
-</p>
+˚◞ ♡ " <i>I'm really not accustomed to using a Vision. Why don't <b>you</b> teach me?</i> " ⋆ .
+<br> <img src="https://files.catbox.moe/liwzm8.png" width=300>
 <p align="center">
-` ੈ˚ ★ <b>savana</b> ✦ <i>cixija</i> ✦ <b>izzy</b> ✦ <i>jay</i> ✦ <b>rimia</b> !! ·˚ *
-<br> ୨୧・┈┈・┈┈・୨୧
-<br> ೃ⁀➷ <i>she ☆ they</i> ⋯ <b>ENFP</b> ⋯ <i>german</i> !! ヽ(o＾▽＾o)ノ . *. ⋆
-<br> ↳ ♡₊˚. <b>nov 28</b> ⋯ <i>autism <img src="https://watermelon.crd.co/assets/images/gallery01/3a2f56e3.gif?v=6332de85"> ADHD</i> ⋯ furina & hu tao kinnie ! ˚◞♡ ⃗
-<br> <img src="https://watermelon.crd.co/assets/images/gallery16/57de5ebd.png?v=6332de85">
-</p>
+ᐢ..ᐢ <i>savana</i> , <b>cixija</b> <img src="https://i.postimg.cc/NyK9y9Vf/b105.gif" width=10> 3teen <img src="https://files.catbox.moe/1u0r0g.gif" width=10> she / they ◜◡◝
+<br> ✃ lesbian ⟡ asexual (＞。☆) <img src="https://files.catbox.moe/7fwoh6.gif" width=10> <a href="https://en.wikipedia.org/wiki/Autism">au</a><a href="https://en.wikipedia.org/wiki/Attention_deficit_hyperactivity_disorder">DHD</a> <img src="https://files.catbox.moe/a12rm9.gif" width=10> <b>ENFP</b> >ヮ<
+<br> <img src="https://files.catbox.moe/tofh6d.png" width=200>
+<br> (꜆˶ᵔᵕᵔ˶)꜆ biggest kinnie of <a href=https://genshin-impact.fandom.com/wiki/Furina>01</a> and <a href="https://genshin-impact.fandom.com/wiki/Hu_Tao">02</a> (꒪˙꒳˙꒪)
+<br> <img src="https://64.media.tumblr.com/23442ce98e6ae3a39e10d30b2bc381d9/2323f0817bbce1f4-96/s1280x1920/9453dfb5263e44d59f2f9283618d2802325eb3c5.pnj" width=400>
 <p align="center">
-<i>usually taking naps randomly</i>
-<br> have a HUGE positive hyperfixation of my oc <a href="https://cixijaxizzyii.carrd.co/"><i>cixija</i></a> <i>!</i>
-<br> also.. have a huge <b>NEGATIVE</b> hyperfixation of scara ?!?!? <img src="https://graphic.neocities.org/tumblr_lpzmiflCxR1qfel73.gif">
-<br> i enjoy calls, but i sound 5 yrs old..
-<br> im emotional and get upset/mad pretty easily <img src="https://graphic.neocities.org/emoji_6.gif">
-</p>
+<img src="https://i.postimg.cc/PPn4KyhD/8-B74-C5-EC-2-F1-E-4-D5-F-9487-0976-BE9-D1-DD5.gif">ㅤ <i>BEFORE ㅤYOUㅤINT !</i>  ㅤ<img src="https://i.postimg.cc/ZWVxbhNP/D00-DBF85-666-B-4815-A380-79-B9-EB09-B41-A.gif">
+<br> <img src="https://files.catbox.moe/lymq7p.png" width=100>
+<br> ↳ I have anger issues <b>especially</b> when loosing in games soo pls be careful around me !
+<br> ↳ Mood swings... eh oh el...
+<br> ↳ I have a <b><i>HUGE</i></b> hyperfixation of my oc <a href="https://toyhou.se/24151042.cixija">cixija</a>! and therefore... a huge <b><i>negative</i></b> obsession of my LEAST favorite <a href="https://genshin-impact.fandom.com/wiki/Scaramouche">character</a>.. ⇀‸↼‶
+<br> ↳ I trash talk abt ppl i dont fw becuz they deserve karma .. T_T
+<br> ↳ Err i have dark humor soo if u zont likey likey it then uh i'll try not 2 do it yeya
+<br> ↳ <b>USE SIMPLE WORDS AND DONT BE DRY!! ^_^</b>
+<br> ↳ Use <a href="https://toneindicators.carrd.co/#">tone tags</a>!!
+<br> ↳ <b>DONT</b> use pet names at me, i dont feel comfy with em :-(
+<br> ↳ i purposely misspell things soo yah dont call the grammar police on me AHEM!!
+<br> ↳ just dont be weird!!
 <p align="center">
-<img src="https://graphic.neocities.org/brunnen11.gif">
-<br>
-࿐ ࿔*:･ﾟ <a href="https://rentry.co/savshome"><i>rentry</i></a> ! ⋯ <a href="https://iisqvzxie.carrd.co"><i>carrd</i></a> ! ˚ ༘♡ ⋆｡˚ ❀
-<br>
-<br>
-<img src="https://64.media.tumblr.com/307f92a4ba1c4f4899b5168956014e37/59840e6362bc73df-1b/s100x200/99f0b978f8e43a4a44187a3a6ecb0f94b741729f.gifv"> <img src="https://64.media.tumblr.com/3eb87fe44e33258498662181e1121f59/314f42d5f100d6d0-1c/s100x200/644d2588cc71e57f767b1d65fb19f22052c9c36c.gifv"> <img src="https://64.media.tumblr.com/49157f7fbe93d905e3ecaf2097665537/314f42d5f100d6d0-47/s100x200/2ddd7bafe8797907daac7fc68806262fb3517f23.gifv"> <img src="https://64.media.tumblr.com/3af5879ef93e50c553c8fb0879278b10/59840e6362bc73df-c3/s100x200/af1c65473766790c3490badb10aa7fd9645a0f73.gifv"> <img src="https://64.media.tumblr.com/c873e8cc321bc3279df23b4c7423ed2e/59840e6362bc73df-dd/s100x200/c265076d68b6ed10f9c91bda4b71469ecca0c478.gifv">
-<br>
-<br> <img src="https://64.media.tumblr.com/d38ff3b31b15a28c1838cc752628c4d6/3a9adf60716557fd-d0/s540x810/5b218a59a5905eb147d31158d06772eed97e1d83.gifv" width="600px">
+💧ㅤㅤㅤ<a href="https://rentry.co/savshome">rentry</a>ㅤㅤ✩ㅤㅤ<a href="https://iisqvzxie.carrd.co">carrd (kinda outdated)</a>ㅤㅤ✩ㅤㅤ<a href="https://colormytree.me/2024/01JEV8F1NY53THHKN3Q3592HN0">sign my tree :3</a>ㅤㅤㅤ🌊
+<p align="center">
+<img src="https://files.catbox.moe/n1dt2k.png">
