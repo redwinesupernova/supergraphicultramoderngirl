@@ -28,6 +28,6 @@
 <br> ↳ i purposely misspell things soo yah dont call the grammar police on me AHEM!!
 <br> ↳ just dont be weird!!
 <p align="center">
-💧 ㅤㅤㅤ<a href="https://rentry.co/savshome">rentry (kinda outdated)</a> ㅤㅤ✩ㅤㅤ <a href="https://iisqvzxie.carrd.co">carrd (kinda outdated too)</a> ㅤㅤ✩ㅤㅤ <a href="https://papageienkuchen.atabook.org">sign my atabook :3</a>ㅤㅤㅤ 🌊
+💧 ㅤㅤㅤ<a href="https://rentry.co/savshome">rentry (remaking)</a> ㅤㅤ✩ㅤㅤ <a href="https://iisqvzxie.carrd.co">carrd (kinda outdated too)</a> ㅤㅤ✩ㅤㅤ <a href="https://papageienkuchen.atabook.org">sign my atabook :3</a>ㅤㅤㅤ 🌊
 <p align="center">
 <img src="https://files.catbox.moe/n1dt2k.png">
