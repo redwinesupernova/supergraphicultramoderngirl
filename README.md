@@ -24,7 +24,7 @@
 <br> ↳ Err i have dark humor soo if u zont likey likey it then uh i'll try not 2 do it yeya
 <br> ↳ <b>USE SIMPLE WORDS AND DONT BE DRY!! ^_^</b>
 <br> ↳ Use <a href="https://toneindicators.carrd.co/#">tone tags</a>!!
-<br> ↳ <b>DONT</b> use pet names at me, i dont feel comfy with em :-(
+<br> ↳ <b>DONT</b> use pet names on me, i dont feel comfy with em :-(
 <br> ↳ i purposely misspell things soo yah dont call the grammar police on me AHEM!!
 <br> ↳ just dont be weird!!
 <p align="center">
