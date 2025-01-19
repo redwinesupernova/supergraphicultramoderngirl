@@ -24,8 +24,9 @@
 <br> ↳ Err i have dark humor soo if u zont likey likey it then uh i'll try not 2 do it yeya
 <br> ↳ <b>USE SIMPLE WORDS AND DONT BE DRY!! ^_^</b>
 <br> ↳ Use <a href="https://toneindicators.carrd.co/#">tone tags</a>!!
-<br> ↳ <b>DONT</b> use pet names on me, i dont feel comfy with em :-(
+<br> ↳ <b>DONT</b> use pet names on me, i dont feel comfy with em!! 
 <br> ↳ i purposely misspell things soo yah dont call the grammar police on me AHEM!!
+<br> ↳ "Eww is that the person that did *insert things I did*?!" this is 2025 not 2022-2023 :-( I APOLOGIZEDDD!!! Pls don't think I'm still like my 2022-2023 self!! 
 <br> ↳ just dont be weird!!
 <p align="center">
 💧 ㅤㅤㅤ<a href="https://rentry.co/savshome">rentry (remaking)</a> ㅤㅤ✩ㅤㅤ <a href="https://iisqvzxie.carrd.co">carrd (kinda outdated)</a> ㅤㅤ✩ㅤㅤ <a href="https://papageienkuchen.atabook.org">sign my atabook :3</a>ㅤㅤㅤ 🌊
