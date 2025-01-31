@@ -4,9 +4,9 @@
 <p align="center">
 <img src="https://github.com/user-attachments/assets/cfe5a7a1-2e65-4719-ac0f-088df2130916">
 
-<img src="https://github.com/user-attachments/assets/be6cae86-ebd0-4265-aab7-746ce018e9f3" width=700>
+<img src="https://github.com/user-attachments/assets/3152aede-150e-4fc8-aa92-b1284230b5d3" width=700>
 <p align="center">
-˚◞ ♡ " <i>I'm really not accustomed to using a Vision. Why don't <b>you</b> teach me?</i> " ⋆ .
+˚◞ ♡ " <i>Being a good guide means relying on <b>experience</b>.</i> " ⋆ .
 <br> <img src="https://files.catbox.moe/liwzm8.png" width=300>
 <p align="center">
 ᐢ..ᐢ <i>savana</i> , <b>cixija</b> <img src="https://i.postimg.cc/NyK9y9Vf/b105.gif" width=10> 3teen <img src="https://files.catbox.moe/1u0r0g.gif" width=10> she / they ◜◡◝
@@ -29,6 +29,6 @@
 <br> ↳ "Eww is that the person that did *insert things I did*?!" this is 2025 not 2022-2023 :-( I APOLOGIZEDDD!!! Pls don't think I'm still like my 2022-2023 self!! 
 <br> ↳ just dont be weird!!
 <p align="center">
-💧 ㅤㅤㅤ<a href="https://rentry.co/savshome">rentry (remaking)</a> ㅤㅤ✩ㅤㅤ <a href="https://iisqvzxie.carrd.co">carrd (kinda outdated)</a> ㅤㅤ✩ㅤㅤ <a href="https://papageienkuchen.atabook.org">sign my atabook :3</a>ㅤㅤㅤ 🌊
+💧 ㅤㅤㅤ<a href="https://rentry.co/savshome">rentry (remaking)</a> ㅤㅤ✩ㅤㅤ <a href="https://iisqvzxie.carrd.co">carrd (kinda outdated)</a> ㅤㅤ✩ㅤㅤ <a href="https://papageienkuchen.atabook.org">sign my atabook :3</a> 🎏
 <p align="center">
 <img src="https://files.catbox.moe/n1dt2k.png">
